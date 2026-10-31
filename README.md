@@ -1,2 +1,0 @@
-# Vanzz-hd-ringan
-Yap
